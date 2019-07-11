@@ -1,1 +1,0 @@
-# MCDQ.github.io
